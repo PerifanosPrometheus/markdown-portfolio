@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Living
+2. Life
+3. to 
+4. the
+5. fullest
